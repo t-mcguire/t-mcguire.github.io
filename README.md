@@ -1,1 +1,0 @@
-# t-mcguire.github.io
